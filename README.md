@@ -5,7 +5,7 @@
 -👯 I’m looking to collaborate on Exciting projects
 - How to reach me ...deva.sri436@gmail.com
 - Social:-
-  https://linkedin.com/in/devanshee-sri-7b7062149-
+  https://www.linkedin.com/in/devanshee-srivastava-7b7062149-
 
 <!---
 Devanshee-sri/Devanshee-sri is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
